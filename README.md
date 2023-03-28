@@ -1,4 +1,4 @@
-## Olá, eu sou Kaio
+## Olá, eu sou Kaio👋
 * Meu linkedIn: https://www.linkedin.com/in/kaio-henrique-5220b6137/
 
 
